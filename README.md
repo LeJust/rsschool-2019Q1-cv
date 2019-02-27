@@ -1,1 +1,1 @@
-# rsschool-2019Q1-cv
+https://LeJust.github.io/rsschool-2019Q1-cv/cv
