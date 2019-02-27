@@ -4,6 +4,6 @@
 4. Studying front-end / js development. I know the basics of working with git bush.
 5. [code examples](https://drive.google.com/open?id=19tGZXxe6BWZ_i5WkMmOldF4uZidN1QjX)
 6. Doing only 2 month, not a lot of experience. Pass the codeacademy, htmlacademy,learnjs.
-7. secondary education. From the first to the 9th grade I studied English. Studied for one year as an English teacher. Finished music school.
+7. Secondary education. Graduated from music school and studied English at school for 9 years. 
 8. From the first to the 9th grade I studied English. Studied for one year as an English teacher. Recently, English is not used often, but the knowledge is not lost.
 
